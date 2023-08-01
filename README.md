@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @YureiTutorials
-- 👀 I’m interested in LoudMicing, Alt Stacking, Audio and Social Engeenering.
+- 👀 I’m interested in LoudMicing, Alt Stacking, Audio and Social Engineering.
 - 📫 How to reach me : unknownfrench@proton.me or " kashda " on Discord.
 
 - 👋 Cybersecurity Enjoyer
